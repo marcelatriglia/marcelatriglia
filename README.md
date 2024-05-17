@@ -1,4 +1,7 @@
-### Hi there 👋
+### **marcela triglia**
+### 3 ano B - tecnologia 
+![]![94132137-7d4fc100-fe7c-11ea-8512-69f90cb65e48](https://github.com/marcelatriglia/marcelatriglia/assets/170116471/f00eeb30-d4d9-42cc-bc00-378bb472757a)
+
 
 <!--
 **marcelatriglia/marcelatriglia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
